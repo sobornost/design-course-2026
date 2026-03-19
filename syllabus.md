@@ -42,21 +42,16 @@
 **12 марта 18:50–20:20** Орнамент
 ### 4. Семинар. Орнамент и преступление?
 **Литература:**
-Моррис, У. «Искусства и ремесла наших дней» / Моррис У. Искусство и жизнь. Избранные статьи, лекции, речи, письма. М.: Искусство, 1973. с.294–313
-
-Elizabeth Carolyn Miller — William Morris and the Form and Politics of Replication / Replication in the Long Nineteenth Century, Edinburgh University Press, 2019
-
-Лоос, А. Орнамент и преступление. Архитектура / Лоос, А. Орнамент и преступление. — М.: Strelka Press, 2018, с. 32–76
-
-Alice Twemlow — The Decriminalization of ornament. https://alicetwemlow.com/the-decriminalisation-of-ornament/==
-
-Хэл Фостер. Дизайн и преступление (Глава 2) / Дизайн и преступление, V-A-C, 2014
-
+Моррис, У. «Искусства и ремесла наших дней» / Моррис У. Искусство и жизнь. Избранные статьи, лекции, речи, письма. М.: Искусство, 1973. с.294–313  
+Elizabeth Carolyn Miller — William Morris and the Form and Politics of Replication / Replication in the Long Nineteenth Century, Edinburgh University Press, 2019  
+Лоос, А. Орнамент и преступление. Архитектура / Лоос, А. Орнамент и преступление. — М.: Strelka Press, 2018, с. 32–76  
+Alice Twemlow — The Decriminalization of ornament. https://alicetwemlow.com/the-decriminalisation-of-ornament/==  
+Хэл Фостер. Дизайн и преступление (Глава 2) / Дизайн и преступление, V-A-C, 2014  
 Коломина, Б. —  Интерьер / Публичное и приватное. Архитектура как массмедиа. // Ad Marginem, 2024, cтр. 161–189
 
-**Работа на семинаре**  (0-4 балла)
+**Работа на семинаре**  (0-4 балла)  
 
-**Критерии:** подготовка доклада по тексту, участие в прениях сторон, подготовка и анализ визуального материала
+**Критерии:** подготовка доклада по тексту, участие в прениях сторон, подготовка и анализ визуального материала  
 
 ---
 **19 марта, 18:50–20:20** Форма
